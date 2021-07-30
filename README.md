@@ -40,3 +40,4 @@ lets see if db works
 yeah!!! db working nice
 
 long polling
+long polling 2
