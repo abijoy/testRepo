@@ -38,3 +38,18 @@ last edit from - cbijoy
 lets see if db works
 
 yeah!!! db working nice
+
+poll poll
+sfdfsf
+dsfsdf
+sdfsfsfsf
+glob glob glob
+blob blob
+dasda
+ddhaka
+sadsfrsdf
+hello
+what can i do 
+huh
+
+lolllll sdfsdfds 
