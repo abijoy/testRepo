@@ -38,9 +38,3 @@ last edit from - cbijoy
 lets see if db works
 
 yeah!!! db working nice
-
-long polling
-long polling 2
-dd
-khek khek khek dfdf sfdsfasdsad wddsdaf sfdsdf sadfsdfsdfsf sadfsafsdfsdf sdfsdfsfsdf 
-sfsfsf
